@@ -1,4 +1,5 @@
-# MY PUBLIC WEB3 PROFILE
+# MY WEB3 PROFILE
+
 - synthia (1).jpg
 - synthia (2).jpg
 - synthia (3).jpg
