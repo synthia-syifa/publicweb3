@@ -1,4 +1,4 @@
-# MY WEB3 PROFILES PICTURE
+# MY WEB3 PROFILE PICTURE
 - synthia (1).jpg
 - synthia (2).jpg
 - synthia (3).jpg
